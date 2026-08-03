@@ -6,4 +6,7 @@
 
 <p align="center">my regi claims + pronouns page ! </p>
 
-https://github.com/user-attachments/assets/428ffe9e-a462-4149-93e6-cbd5d9041b4f
+
+https://github.com/user-attachments/assets/55d2d665-ebb7-4f3b-aa09-7115f8fdf49c
+
+
