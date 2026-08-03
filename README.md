@@ -1,6 +1,6 @@
 
 
-https://github.com/user-attachments/assets/428ffe9e-a462-4149-93e6-cbd5d9041b4f
+
 
 <p align="center">``https://pronouns.cc/@humanmalware ! </p>
 
@@ -9,5 +9,4 @@ https://github.com/user-attachments/assets/428ffe9e-a462-4149-93e6-cbd5d9041b4f
 <p align="center"><img
 src=https://github.com/rrottenangel/rrottenangel/blob/main/e1165977e806d0c7ac2c701792bd3066.jpg>
 
-<p align="center"width="100%"><video src=https://github.com/humanmaIware/humanmaIware/blob/main/trying.mp4> width="80%" controls></video>
-</p>
+https://github.com/user-attachments/assets/428ffe9e-a462-4149-93e6-cbd5d9041b4f
